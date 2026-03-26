@@ -1,2 +1,0 @@
-# ndesigns.rf.gd
-Website 
